@@ -1,2 +1,2 @@
-# Nature Photography and Qoutations to gain some motivation.
+# Qoutations to Gain some Inspiration.
 
